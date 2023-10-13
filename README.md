@@ -9,6 +9,7 @@ Lịch trình chi tiết
 
 - 08:00: Xuất phát từ nhà nghỉ/hotel, thăm **Hồ Xuân Hương** - trái tim của Đà Lạt.
 - 10:00: Thăm **Dinh Bảo Đại**, cung điện mùa hè của vị vua cuối cùng của Việt Nam.
+ [Dinh Bảo Đại](https://statics.vntrip.vn/data-v2/data-guide/img_content/1461731656_dinh-bao-dai-1.jpg)
 - 12:00: Ăn trưa tại một nhà hàng địa phương.
 - 14:00: Khám phá **Thung lũng Tình Yêu**, một trong những điểm du lịch nổi tiếng của Đà Lạt.
 - 17:00: Trở về nhà nghỉ/hotel, nghỉ ngơi và ăn tối.
@@ -19,6 +20,7 @@ Lịch trình chi tiết
 
 - 08:00: Khởi hành, thăm **Nhà Thờ Con Gà** - một biểu tượng của Đà Lạt.
 - 10:00: Thăm **Vườn hoa Đà Lạt** để thưởng thức vẻ đẹp của các loại hoa địa phương.
+[Vườn hoa Đà Lạt](http://media.dulich24.com.vn/diemden/vuon-hoa-thanh-pho-da-lat-6665/1b0c8923-e39b-4b14-a0d2-cd1a83766a8e.jpg)
 - 12:00: Ăn trưa.
 - 14:00: Khám phá **Đồi Cỏ Hồng** và chụp ảnh lưu niệm.
 - 17:00: dựng lều cắm trại ngoài trời.
@@ -29,9 +31,11 @@ Lịch trình chi tiết
 
 - 08:00: Khởi hành, thăm **Chợ Đà Lạt** để mua sắm đặc sản.
 - 10:00: Thăm **Trại Mát** để thưởng thức không khí trong lành và cảnh đẹp nên thơ.
+  [Trại Mát](https://ik.imagekit.io/tvlk/blog/2023/06/AFNfJJVF-image.png?tr=dpr-2,w-675)
 - 12:00: Ăn trưa tại một nhà hàng địa phương.
 - 14:00: Tự do khám phá thành phố hoặc thăm một số cửa hàng lưu niệm.
 - 17:00: Trở về nhà nghỉ/hotel, chuẩn bị hành lý và kết thúc chuyến du lịch.
+- 18:00: Bắt đầu trở về TP.Hồ Chí Minh
 
 
 
