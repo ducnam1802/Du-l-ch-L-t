@@ -5,7 +5,7 @@ Lịch trình chi tiết
 
 ## Ngày 1: Chuẩn bị xuất phát ở TP.HCM Khám phá Đà Lạt
 - 02:00: Chuẩn bị đồ đạc và bắt đầu di chuyển xuống Đà Lạt 
-![Hồ Xuân Hương](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.traveloka.com%2Fvi-vn%2Fexplore%2Fdestination%2Fho-xuan-huong-da-lat-acc%2F209218&psig=AOvVaw1vDLPm1O6tKJJkYZ_fgB_e&ust=1697266671143000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIC4rJq58oEDFQAAAAAdAAAAABAH)
+[Hồ Xuân Hương](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.traveloka.com%2Fvi-vn%2Fexplore%2Fdestination%2Fho-xuan-huong-da-lat-acc%2F209218&psig=AOvVaw1vDLPm1O6tKJJkYZ_fgB_e&ust=1697266671143000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIC4rJq58oEDFQAAAAAdAAAAABAH)
 
 - 08:00: Xuất phát từ nhà nghỉ/hotel, thăm **Hồ Xuân Hương** - trái tim của Đà Lạt.
 - 10:00: Thăm **Dinh Bảo Đại**, cung điện mùa hè của vị vua cuối cùng của Việt Nam.
@@ -15,7 +15,7 @@ Lịch trình chi tiết
 
 ## Ngày 2: Tiếp tục khám phá và cắm trại ngoài trời 
 
-![Nhà Thờ Con Gà](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.hoteldalatvalley.com%2Fnha-tho-con-ga%2F&psig=AOvVaw0yCMqOxO4w_naBjnITQKFi&ust=1697266719541000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCJiQwrK58oEDFQAAAAAdAAAAABAD)
+[Nhà Thờ Con Gà](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.hoteldalatvalley.com%2Fnha-tho-con-ga%2F&psig=AOvVaw0yCMqOxO4w_naBjnITQKFi&ust=1697266719541000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCJiQwrK58oEDFQAAAAAdAAAAABAD)
 
 - 08:00: Khởi hành, thăm **Nhà Thờ Con Gà** - một biểu tượng của Đà Lạt.
 - 10:00: Thăm **Vườn hoa Đà Lạt** để thưởng thức vẻ đẹp của các loại hoa địa phương.
@@ -25,7 +25,7 @@ Lịch trình chi tiết
 
 ## Ngày 3: Thư giãn và mua sắm
 
-![Chợ Đà Lạt](https://www.google.com/url?sa=i&url=https%3A%2F%2Fvnexpress.net%2Fly-giai-ten-goi-am-phu-cua-cho-dem-da-lat-4203758.html&psig=AOvVaw20o_5CZCQTWXYb0BhSmqF4&ust=1697266811572000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKiRqN-58oEDFQAAAAAdAAAAABAD)
+[Chợ Đà Lạt](https://www.google.com/url?sa=i&url=https%3A%2F%2Fvnexpress.net%2Fly-giai-ten-goi-am-phu-cua-cho-dem-da-lat-4203758.html&psig=AOvVaw20o_5CZCQTWXYb0BhSmqF4&ust=1697266811572000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKiRqN-58oEDFQAAAAAdAAAAABAD)
 
 - 08:00: Khởi hành, thăm **Chợ Đà Lạt** để mua sắm đặc sản.
 - 10:00: Thăm **Trại Mát** để thưởng thức không khí trong lành và cảnh đẹp nên thơ.
