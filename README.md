@@ -1,6 +1,6 @@
 [image](https://media.vneconomy.vn/w800/images/upload/2023/07/06/1688465738-grasp-the-rainy-season-travel-tips-to-da-lat.jpg)DuLichDaLat
 # Kế hoạch đi du lịch đà lạt 3 ngày 2 đêm
-# Lịch trình chi tiết
+## Lịch trình chi tiết
 ## Ngày 1: Chuẩn bị xuất phát ở TP.HCM Khám phá Đà Lạt
 - 02:00: Chuẩn bị đồ đạc và bắt đầu di chuyển xuống Đà Lạt 
 [Hồ Xuân Hương](https://ik.imagekit.io/tvlk/blog/2023/01/ho-xuan-huong-da-lat-2.jpg?tr=dpr-2,w-675)
